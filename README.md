@@ -1,2 +1,2 @@
 # rudrarb.github.io
-Bhaskara Rudraju's profile
+Bhaskara Rudraraju's profile
